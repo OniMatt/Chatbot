@@ -1,0 +1,1 @@
+opa meu código é ruim mas é porque eu não sei programar mesmo
